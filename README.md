@@ -1,5 +1,9 @@
 Hey there! 
+
 ヤッホー! 
+
 ¡Qué onda! 
-Was geht ab! 
+
+Was geht!
+
 কি খবর!
