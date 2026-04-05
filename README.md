@@ -1,1 +1,1 @@
-## クシャル・チョットパッダエ　Kushal Chattopadhyay
+Kushal Chattopadhyay
